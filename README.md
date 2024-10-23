@@ -32,4 +32,16 @@ Website: https://sodo696z.com
 Phone: 0909533333
 Email: contact@sodo696z.com
 #sodo #sodo_casino #số_đỏ_casino
-
+https://www.pinterest.com/pin/1051801688021519138
+https://500px.com/photo/1102550360/z5954385158756_bf5fcf0d81c12f5297183e43fdfb897a-by-adelle-schank
+https://sodo696z.blogspot.com/2024/10/thong-tin-lien-he-so-o-casino-giai-ap.html
+https://github.com/sodo696z/Th-ng-Tin-Li-n-H-s-casino-Gi-i-p-Th-c-M-c-Khi-C-n-Thi-t/blob/main/README.md
+https://sites.google.com/view/sodo696z/home/16
+http://so697z.xim.tv/tin-tuc/thong-tin-lien-he-so-do-casino-giai-dap-thac-mac-khi-can-thiet-new83492.html
+https://www.notebook.ai/documents/1443775
+https://x.com/sodo696z8566/status/1848365186270507389
+https://www.diigo.com/item/note/b7g42/okdj?k=6bb8208aa04050682afab8060945b66c
+https://band.us/band/96481707/post/18
+https://glose.com/u/sodo696z
+https://band.us/band/96481707/post/17
+https://zenwriting.net/l8f1xv6dh8
